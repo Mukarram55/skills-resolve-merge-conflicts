@@ -1,3 +1,7 @@
 # References
 
-* octocat 1 😈
+Available upon request.
+
+Contact:
+- Jane Doe
+- John Smith
